@@ -1,7 +1,7 @@
-# SamFw FRP Tool Latest version Linux & Window
+# SamFw Tool Latest version Remove Samsung FRP one click For Linux & Window
 
 SamFw FRP Tool is software that allows you to bypass the FRP lock from your Android devices. Also, you can use this software to perform a factory reset.
 
-# 🚀💹🎉 [SamFw FRP Tool](https://tinyurl.com/9rdtyvz2)
+## 🚀💹🎉 [SamFw Tool](https://tinyurl.com/ycx9cmnc)
 
-# 🚀💹🎉 [SamFw FRP](https://tinyurl.com/9rdtyvz2)
+## 🚀💹🎉 [SamFw FRP Tool](https://tinyurl.com/ycx9cmnc)
